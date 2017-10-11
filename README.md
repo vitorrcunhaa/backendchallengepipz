@@ -10,7 +10,7 @@ Linkedin: https://br.linkedin.com/pub/vítor-de-souza-cunha/9b/a29/791
 
 Celular: (48)9 9999-2643  (TIM)
 
-E-mail: vitor.cunha@grad.ufsc.br
+E-mail: vitor.cunha@grad.ufsc.br ou vitorrcunhaa@gmail.com
 
 
 ## Documentações:
